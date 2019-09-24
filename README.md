@@ -1,1 +1,1 @@
-stage
+When i was beginner
